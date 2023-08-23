@@ -1,1 +1,1 @@
-magical touch
+Magical touch
