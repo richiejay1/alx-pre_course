@@ -1,1 +1,1 @@
-Magical hand
+Magical touch
